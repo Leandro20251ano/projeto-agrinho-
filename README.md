@@ -1,0 +1,1 @@
+caminhão indo para cidade
